@@ -2,7 +2,9 @@
 
 my showreel?!??!?!?
 
-mostly meme games, working on a 2D undertale type game.
+mostly meme games that i made with my friend for shits and giggles and some of my own games.
 
 
-© aleksander kurpiewski i think i dunno
+
+
+© aleksander kurpiewski i think i dunno (yes this guy is trying to make his shitty games into a career...)
